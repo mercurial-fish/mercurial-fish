@@ -8,5 +8,5 @@ Hi there 👋
 
 😄 Pronouns: They/Them
 
-⚡ Fun fact: I read tarot, I know too much about TV/Movies, and I listen to showtunes A LOT! :japanese_ogre:
+⚡ Fun fact: I read tarot, I know too much about TV/Movies, I produce/edit/host a podcast, and I listen to showtunes A LOT! :japanese_ogre:
 
